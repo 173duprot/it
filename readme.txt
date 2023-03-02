@@ -1,4 +1,5 @@
 Simpler than zen, less precepts, less assumptions.
+No religion, no phliosophy, no practice.
 
 Its name shall be whatever term shows it clearly.
 It's not a religion or practice. 
@@ -8,5 +9,7 @@ It's a cultavation.
 It's the most direct approach.
 Do not supress either body or mind.
 Observe the present state. What is its logic? What is it's guiding pattern?
-Be the most honest you ever can be to yourself, about everything.
-You already have it.
+Be the most honest you ever can be too yourself, about everything.
+With this awareness, dispell illusions.
+If there's no awnser, stop seeking.
+You already have it because you are it.
