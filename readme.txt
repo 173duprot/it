@@ -8,11 +8,16 @@ It's not instant.
 It's a cultavation.
 It's the most direct approach.
 Do not supress either body or mind.
+Remember thoughts are guesses.
+Remember emotions cloud thoughts.
 Observe the present state. What is its logic? What is it's guiding pattern?
 Be the most honest you ever can be too yourself, about everything.
-With this awareness, dispell illusions.
+With this new awareness, dispell illusions.
+With this new awareness, act accordingly.
+With this new awareness, become healthy.
+Do not look to texts, masters, guides.
+You know if your getting better, because you will be more free, more joyious.
 If there's no awnser, stop seeking.
-You already have it because you are it.
 
 --- Detachment sucks ---
 
