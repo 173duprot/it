@@ -13,3 +13,17 @@ Be the most honest you ever can be too yourself, about everything.
 With this awareness, dispell illusions.
 If there's no awnser, stop seeking.
 You already have it because you are it.
+
+--- Detachment sucks ---
+
+"Detatchment" is truely a terribly translated word that pervaudes psudo-eastern phliosophy.
+
+Words like "Detachment", "ego", etc. all nonsense and sidestreets, the english word is nothing but a deciever here.
+
+Ego or non-ego,
+attachment or disattachment
+Seek instead understanding and the whole world opens up to you.
+
+Understand and you can act.
+Act and you will understand better.
+This is how wisdom grows.
