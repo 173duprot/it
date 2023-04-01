@@ -14,6 +14,7 @@ Remember emotions cloud thoughts.
 Observe the present state.
 - What is its logic?
 - What is it's guiding pattern?
+- Identify that state, learn your states.
 
 Be the most honest you ever can be too yourself, about everything.
 With this new awareness, dispell illusions.
@@ -38,3 +39,13 @@ Seek instead understanding and the whole world opens up to you.
 Understand and you can act.
 Act and you will understand better.
 This is how wisdom grows.
+
+--- Care
+
+Your mental well-being is like an animal, care for it, give it a good enviroment, a good "context", put the proper effort into taking care of it and it will grant you the world.
+
+Forsake it, fill it with bad thougths, unhealthy beliefs, bad enviroment, and chemical imbalances, and it will degrade.
+
+All is mind, this care changes the very way reality is viewed. 
+
+Start with self-care, mental and physical, and all will be unlocked.
